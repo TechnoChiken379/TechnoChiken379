@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TechnoChiken379.
+- 👀 I’m interested in Gaming, C# and instruments like bass and electric guitar.
+- 🌱 I’m currently learning C#
+- 💞️ I’m looking to collaborate on, yes...
+- 📫 How to reach me: by email: l.tillaar@home.nl
